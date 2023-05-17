@@ -5,6 +5,7 @@
 
 I'm a passionate student at the University of Michigan with intern experience in Data Analytics and Cyber security. I love to continuously expand my knowledge and embrace new experiences.
 
+![Salford   Co](https://github.com/Jerusha-Manoj/Jerusha-Manoj/assets/133903427/aecba108-abfc-4d95-8881-cffe1c4fb10e)
 
 - 🌱 Currently learning: C++ and HTML
 - 🔭 Working on: Personal projects to strengthin my programming skills
