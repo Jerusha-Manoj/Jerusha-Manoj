@@ -1,4 +1,4 @@
-# Hi there, I'm Jerusha 👋
+# 👋 Hi there, I'm
 ![Jerusha Manoj](https://github.com/Jerusha-Manoj/Jerusha-Manoj/assets/133903427/b6e7e70a-d428-4343-a686-862190bcaf96)
 
 
