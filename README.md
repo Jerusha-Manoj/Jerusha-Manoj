@@ -1,5 +1,5 @@
 # Hi there, I'm Jerusha 👋
-![Jerusha Manoj](https://github.com/Jerusha-Manoj/Jerusha-Manoj/assets/133903427/837ee4b7-b934-447a-ab4d-f0386c4bf86b)
+![Jerusha Manoj](https://github.com/Jerusha-Manoj/Jerusha-Manoj/assets/133903427/b6e7e70a-d428-4343-a686-862190bcaf96)
 
 
 ## About Me 🚀
